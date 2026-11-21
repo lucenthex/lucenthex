@@ -1,11 +1,14 @@
 <p align="center">
   
-![](https://files.catbox.moe/r91sc7.png)
+![](https://files.catbox.moe/86awmy.jpg)
 
 <p align="center">
-I'm really lazy to follow these spam followers back im so sorry 😭😭
-  
+
+![](https://files.catbox.moe/1849jy.png)
+
 <p align="center">
-awards 👀 
-  
-![](https://files.catbox.moe/ijuyit.png)
+<a href="https://lucenthex.atabook.org/">atabook</a>ㅤㅤ  ㅤㅤ<a href="https://rebloom-ed.straw.page/">strawpage</a>
+
+<p align="center">
+
+![](https://files.catbox.moe/86awmy.jpg)
